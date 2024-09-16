@@ -6,3 +6,6 @@ estou estudadando na (alura)(https://www.alura.com.br)estu desenvolvendo na ling
 compartilhar os projeots dese3nvolvidos
 
 você pode entrar em contato comigo 0000111424801SP@aluno.educacao.sp.gov.br
+
+
+![](https://media1.tenor.com/m/NefjcH1N1tcAAAAd/arthur-morgan.gif)
